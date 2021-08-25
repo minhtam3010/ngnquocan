@@ -6,7 +6,7 @@
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
 - 🥅 
-- ⚡ Fun fact: I love to draw and play piano / guitar
+- ⚡ Fun fact: I love to sing, draw and play piano / guitar
 - 👀 
 - 🌱 
 - 💞️ 
